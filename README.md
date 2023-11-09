@@ -1,2 +1,6 @@
 # NETFLIX
 CLONE
+
+
+https://github.com/BADAM2001/NETFLIX/assets/95230584/3570cdbb-750e-4f12-a93d-356d1632b0d8
+
